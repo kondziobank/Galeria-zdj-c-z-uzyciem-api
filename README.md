@@ -1,0 +1,1 @@
+# Galeria-zdj-c-z-uzyciem-api
